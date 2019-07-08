@@ -28,32 +28,26 @@ Price for rentals: ranges from<a href="https://www.myegyptrealestate.com/en/comp
 
 Facilities: 5 star hotels, sports area, clubhouse, kids club, swimming pools, splash activity pool, supermarkets, Breeze Beach House, recreational area, supermarkets, pharmacy, security, facility management, mosque, interactive fountain, aqua kids, ladies beach & pool, retail and commercial in addition to restaurants and cafes.
 
-Marassi
 
+<a href="https://www.myegyptrealestate.com/en/keyword-Marassi">Marassi</a>
 
-Marassi
-
-Location: located in KM 125, North Coast, Sidi Abdel Rahman.
+Location: located in KM 125,<a href="https://www.myegyptrealestate.com/en/keyword-north-coast">North Coast</a> , <a href="https://www.myegyptrealestate.com/en/keyword-Sidi-Abdel-Rahman">Sidi Abdel Rahman</a>.
 
 Price for rentals: ranges from 1000–1200 EGP.
 
 Facilities and amenities: it is set to become the first upscale international destination in North Coast. It includes swimming pools, 5-star hotel, clubs, healthcare complex, retail shops, beauty salon, golf course, beach clubhouse, restaurants, and cafes.
 
-Hacienda Bay
 
+<a href="https://www.myegyptrealestate.com/en/keyword-hacienda-bay">Hacienda Bay</a>
 
-Hacienda Bay
-
-Location: located in KM 200, North Coast, Sidi Abdel Rahman.
+Location: located in KM 200, <a href="https://www.myegyptrealestate.com/en/keyword-north-coast">North Coast</a>, <a href="https://www.myegyptrealestate.com/en/keyword-Sidi-Abdel-Rahman">Sidi Abdel Rahman</a>.
 
 Price for rentals: ranges from 1500–2000 EGP.
 
 Facilities: golf course, private swimming pools, roofed parking, parks, recreational facilities, clubhouses, top-class beauty salons, and commercial shops.
 
-La Vista
 
-
-La Vista
+<a href="https://www.myegyptrealestate.com/en/keyword-La-Vista">La Vista</a>
 
 Location: located in KM 170 of the Alexandria-Matrouh Road and could be easily reachable through the New Fouka Road.
 
@@ -61,10 +55,9 @@ Price for rentals: ranges from 2.500–3000 EGP.
 
 Facilities: beach pools, clubhouse, women’s pool, cascading falls, sea-side open-air gyms, supermarket, sports facilities, restaurants and cafes in addition to entertainment and commercial venues on the beach.
 
-Telal
 
 
-Telal, North Coast
+<a href="https://www.myegyptrealestate.com/en/keyword-Telal-North-Coast">Telal, North Coast</a>
 
 Location: KM 129 of the Alexandria-Matrouh Road.
 
@@ -72,10 +65,9 @@ Price for rentals: ranges from 2500–3000 EGP.
 
 Facilities: swimming pools, equipped medical center, retail shops, restaurants, and cafes.
 
-Marina
 
 
-Marina, North Coast
+<a href="https://www.myegyptrealestate.com/en/keyword-Marina-North-Coast">Marina, North Coast</a>
 
 Location: from KM 94 — KM 111 of the Alexandria Matrouh Road, El-Alamein.
 
@@ -83,7 +75,7 @@ Price for rent: ranges from 1.500–2000 EGP.
 
 Facilities: private beaches, Aqua Park, entertainment city, swimming pools, hotel, yacht club, commercial center, gym, the billiard hall in addition to restaurants and cafes.
 
-Porto Marina
+<a href="https://www.myegyptrealestate.com/en/keyword-Porto-Marina">Porto Marina</a>
 
 Location: it is one of the most important hotels in Marina.
 
@@ -92,7 +84,7 @@ Price for rent: starts from 900 EGP.
 Golf Porto Marina
 
 
-Golf Porto Marina, North Coast
+<a href="https://www.myegyptrealestate.com/en/keyword-golf-Porto-Marina">Golf Porto Marina, North Coast</a>
 
 Location: KM 110 of the Alexandria Matrouh Road, in from of Marina 7.
 
